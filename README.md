@@ -1,1 +1,0 @@
-# svpam.github.io
